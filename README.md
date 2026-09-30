@@ -1,0 +1,2 @@
+# premium-tintype-001-wet-plate-tintype-collodion-ti
+Miss the perfect plate by a second? The Wet Plate Collodion Tintype Timer eliminates guesswork with preset sequences for pouring, sensitizing, exposing, developing, and fixing—all in one Notion dashboard.  This Notion template replaces scattered phone timers and sticky notes with a dedicated, customizable timer system designed specifically for the
